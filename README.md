@@ -1,0 +1,1 @@
+# Jadwal-pelajaran-XII-IPS-1
